@@ -9,7 +9,7 @@ Hallo, aku **REHUEL MIRROR (REN)** 👋
 
 ---
 
-## 🐹 About Me
+## ✨ About Me
 - human/being 🧍  
 - currently learning something 📚  
 - brain resets every 5 minutes (forgetful) 🌀  
